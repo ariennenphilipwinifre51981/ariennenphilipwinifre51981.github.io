@@ -1,0 +1,1 @@
+https://update-wpscloud.com

@@ -1,1 +1,1 @@
-update1-wpscloud.com
+update-wpscloud.com
